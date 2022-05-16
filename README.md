@@ -1,12 +1,10 @@
-# Delcaration of Self Independence
-
-
+# Freedom of Chinese
 
 ### Description
 
-This project is aim to create a formal document for individuals who wants to officially divorce from the slavery of Chinese Communist Party. 
+This project is aim to create a series of formal documents for individuals who wants to divorce from the slavery of Chinese Communist Party and announce his(or her) freedom at the legal level.
 
-As you may know, t
+As you may know, there is strong censorship and persecution in Communist China to resist such kind of attempt for seeking freedom among independent individuals. However, git and GitHub provide a perfect platform for collaboration, contribution.
 
 ### Getting Started
 
