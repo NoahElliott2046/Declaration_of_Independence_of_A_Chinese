@@ -1,4 +1,4 @@
-# Declaration of Freedom of Chinese
+# Declaration of Independence
 
 ### Preface
 
