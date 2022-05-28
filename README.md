@@ -20,7 +20,7 @@ Based on the facts above, I, from today, take back all the rights and privileges
 
 From today, I terminate all political connections and relationships with the government of People's Republic China and Chinese Communist Party. I do not admit that their power serves public and their law serves justice. Nor do I have any obligation to pay them tax, insurance or any other outrageous charges which only aims to support their dictatorship and conduct national crimes.
 
-From today, I am no longer a slave of this evil Communist regime any more. 
+From today, I am no longer a slave being manipulated by this evil Communist regime. 
 
 From today, I go free.
 
