@@ -16,11 +16,13 @@ Under the rule of CCP[^1], the history of this country, People’s Republic of C
 
 ### Announcement
 
-Based on the facts above, I, from today, take back all the rights and privileges which I had somehow given to the government of People's Republic China for conducting the power as governor. They are no longer authorized to act as representative of me in any aspect, no matter politically or privately, mentally or physically, geographically or historically.  
+Based on the facts above, I, from today, take back all the rights and privileges which I had somehow given to the government of People's Republic China for conducting the power as our governor. They are no longer authorized to act as the representative of me in any aspect, no matter politically or privately, mentally or physically, geographically or historically.  
 
-From today, I terminate all political connections and relationships with the government of People's Republic China and Chinese Communist Party. I do not admit that their power serves public and their law serves justice. Nor do I have any obligation to pay them tax, insurance or any other outrageous charges which only aims to support their dictatorship and conduct national crimes.
+From today, I terminate all the connections and relationships with the government of People's Republic China, which is actually controled by Chinese Communist Party. I do not admit that their power serves public and their law serves justice. Nor do I have any obligation to pay them tax or any other outrageous charges which only aim to conduct national crimes.
 
-From today, I am no longer a slave being manipulated by this evil Communist regime. 
+From today, I will not suffer a coward life under the manipulation of Chinese Communist Party.
+
+From today, I am no logner a slave, but a human with natural rights and dignity.
 
 From today, I go free.
 
