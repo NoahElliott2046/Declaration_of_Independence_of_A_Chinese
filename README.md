@@ -1,4 +1,4 @@
-# Declaration of Independence
+# Declaration of Individual Independence of A Chinese
 
 ### Preface
 
@@ -12,7 +12,7 @@ Under the rule of CCP[^1], the history of this country, People’s Republic of C
 - For decades, they have been sucking incredible fortune from the population, not even miss the poorest and weakest ones, only to reinforce their dictatorship and slavery against us.
 - They brain-wash our minds, manipulate our lives, spread hatred and terrorize the communities. They silence journalists, prison lawyers, disappear objectors and commit genocide. They conduct all these national crimes to such an extreme that no one has ever seen in the human history.
 - They released COVID-19, a man-made virus[^3] which proved to be one of the un-restricted bio weapons[^4] developed by People's Liberation Army(PLA[^5]). So far, it caused the death of millions of innocent people all around the world.
-- Countless humanitarian disasters are fabricated by the current government and its chairman Xi Jin Ping, who apparently plot to decivilize, imperialize and weaponize the whole nation.
+- They stealthily formed an alliance with Russia who conduct war crimes with the support of Xi Jin Ping, who apparently plot to decivilize, imperialize and weaponize the whole nation.
 
 ### Announcement
 
